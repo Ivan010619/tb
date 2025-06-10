@@ -1,1 +1,17 @@
-# tb
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter-84.CBZ
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter%2085.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter%2086.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter-87.CBZ
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter%2088.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter%2089.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter-90.CBZ
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter-91.CBZ
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter-92.CBZ
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter%2093.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter-94.CBZ
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter%2095.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter%2096.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter-97.CBZ
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter%2098.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter%2099.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/Chapter%20100.cbz
