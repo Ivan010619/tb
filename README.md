@@ -10,3 +10,14 @@ https://github.com/Ivan010619/tb/raw/refs/heads/main/soleil__Chapter%2017%20_%20
 https://github.com/Ivan010619/tb/raw/refs/heads/main/soleil__Chapter%2018%20_%20Poker.cbz
 https://github.com/Ivan010619/tb/raw/refs/heads/main/soleil__Chapter%2019%20_%20The%20Reveal.cbz
 https://github.com/Ivan010619/tb/raw/refs/heads/main/soleil__Chapter%2020%20_%20The%2011th%20Floor.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/soleil__Chapter%2011%20_%20Aura.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/soleil__Chapter%2021%20_%20The%20Warrior.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/soleil__Chapter%2022%20_%2010,000%20Gold.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/soleil__Chapter%2023%20_%20Lie%20Detector.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/soleil__Chapter%2024%20_%20An%20Apology.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/soleil__Chapter%2025%20_%2011th%20Floor%20Rewards.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/LadyoftheLake_Chapter%2026%20_%20Warriors%20and%20the%20Traitor.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/LadyoftheLake_Chapter%2027%20_%20Siege%20of%20the%20Empire's%20Capital.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/LadyoftheLake_Chapter%2028%20_%20The%20Demon%20King.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/LadyoftheLake_Chapter%2029%20_%20Symphony%20of%20the%20Sword.cbz
+https://github.com/Ivan010619/tb/raw/refs/heads/main/LadyoftheLake_Chapter%2030%20_%20A%20Normal%20Reaction.cbz
